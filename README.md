@@ -1,1 +1,0 @@
-# faragodominik.github.io
